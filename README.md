@@ -1,4 +1,4 @@
-# YouTube + GitHub-as-a-Content-Hub
+# Seek God With Daniel
 
 
 
